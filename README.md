@@ -1,2 +1,2 @@
 # almubarakinternational.github.io
-LPG Distribution and auto repair company pvt limited
+LPG distribution, Auto Repair and Tyre Suppliers company pvt limited
